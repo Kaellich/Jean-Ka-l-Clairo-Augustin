@@ -1,3 +1,3 @@
 Kaelli.ch
-# Jean-Kael-Clairo-Augustin
+# Jean-Kaël-Clairo-Augustin
 Kreativität, Spiritualität und Sponsoren
